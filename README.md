@@ -1,2 +1,2 @@
-# UwU
-Gyatt skibidi rizz mog my fanum tax ohio rizzler
+# prealgebraconceptualunderstanding.github.io
+Visit ohio-math.github.io for more learning
